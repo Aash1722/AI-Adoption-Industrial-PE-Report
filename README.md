@@ -1,4 +1,3 @@
-# AI-Adoption-Industrial-PE-Report
 # AI Adoption as an Investment Theme
 ### B2B Services · Manufacturing · Industrial Services · Distribution
 *Market research for a Canadian private-equity audience*
